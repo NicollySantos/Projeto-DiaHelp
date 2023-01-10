@@ -7,6 +7,7 @@ Instagram: https://www.instagram.com/diahelp_/ <br/>
 Tiktok: https://www.tiktok.com/@_diahelp_ <br/>
 Linkedin: https://www.linkedin.com/company/diahelp-plataforma/ <br/>
 Link da Apresentação: https://senacspedu-my.sharepoint.com/:p:/g/personal/nicolly_ehsantos_senacsp_edu_br/EWsWuVvVQX9DsumuGw-2-AEBcgLLGXfalzOizqp6RK8L3Q?e=jmBqq6 <br/>
+Link do Arquivo Compactado da Plataforma da DiaHelp: https://senacspedu-my.sharepoint.com/:u:/g/personal/nicolly_ehsantos_senacsp_edu_br/ESCdKum8Ip9OvIwacHmVLKYBhlUutganoJYSdxxbSKsHOg?e=hvIgfa <br/>
 
 
   <div align="center">
