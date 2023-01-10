@@ -2,6 +2,11 @@
 Projeto de conclusão do curso ProProfissão
 
 Link do GitHub do projeto DEMO DAY: https://github.com/DiaHelp-GitHub
+Linktree : https://linktr.ee/diahelp_
+Instagram: https://www.instagram.com/diahelp_/
+Tiktok: https://www.tiktok.com/@_diahelp_
+Linkedin: https://www.linkedin.com/company/diahelp-plataforma/
+Link da Apresentação: https://senacspedu-my.sharepoint.com/:p:/g/personal/nicolly_ehsantos_senacsp_edu_br/EWsWuVvVQX9DsumuGw-2-AEBcgLLGXfalzOizqp6RK8L3Q?e=jmBqq6
 
 
   <div align="center">
